@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with good job
 - 💬 Ask me about me
 - 📫 How to reach me vijayawada
-- ⚡ Fun fact:   :muscle: :muscle: :muscle: :muscle: :muscle: :muscle: :muscle: 
+- ⚡ Fun fact:   :smile:
 
